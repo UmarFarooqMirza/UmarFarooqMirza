@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **mirzaumar089@gmail.com**
 
-- ⚡ Fun fact **I am quick Learner,good leadership skills,photographer**
+- ⚡ Fun fact **I am quick Learner | Good Leadership Skills | Photographer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
